@@ -1,3 +1,9 @@
+# Hello and Slava Ukraini, kottans!
+## Keep kalm and learn code
+I'm Yevhen https://github.com/t-jay-777
+
+![31589404_131876137675188_6412472445936074752_n](https://user-images.githubusercontent.com/48657526/68710899-c5cdfb00-0598-11ea-86cc-813c3d9d6fe6.jpg)
+
 # Holly Sh.t!
 Greet everyone on this incredible cource!!!
 
