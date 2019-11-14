@@ -291,7 +291,6 @@ Hello, Kottans! How wonderful that I found you!
 ![catfish](gif/catfish.gif)
 
 
-{}{}{{}{}{}{}{{}{}{}{}{}{}{}{}{}{}{}{}{}{}{}
 
 Hi everybody!!!!! I`m ready to study. I want to learn something new and fresh!!!!!
 I want to be in your team!!!!!!
